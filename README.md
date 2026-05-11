@@ -1,2 +1,2 @@
-# Statisk-Nettside-Test
-Statisk Github.io kun gjennom github
+# Abdi0806.github.io
+Ganske rett fram.
